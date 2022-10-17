@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @aimanprasla
+- 🌱 I’m currently pursuing a bachelor at the University of Houston for computer science
+- 📫 Reach me at aimanprasla786@gmail.com
